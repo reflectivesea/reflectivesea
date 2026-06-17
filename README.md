@@ -13,5 +13,5 @@
 </p>
 
 <p align="center">
-  <a href="https://mortenax.atabook.org/">atabook</a>  <a href="https://brunocciarati/">carrd</a>
+  <a href="https://mortenax.atabook.org/">atabook</a>  <a href="https://brunocciarati.carrd.co/">carrd</a>
 </p>
