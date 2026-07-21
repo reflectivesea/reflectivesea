@@ -7,7 +7,7 @@
 <p align="center"> 
   <img src="https://i.postimg.cc/nrsLxsdR/4629b62d-af1d-4928-921c-c73e3598cc1f-removebg-preview.png" alt="padparadscha" width="300">
 </p>
-<p align="center">ㅤㅤㅤㅤ𝗄ℓ𝖾ⲓnㅤㅤ࣪ㅤㅤ<b>k𝖾𝖎</b>ㅤㅤ♰ㅤㅤ𝟢1<br>ㅤㅤㅤ𝗐ℎ<underline>𝖾𝗋</underline>ᧉ  ?ㅤ﹕ㅤ 𝗉𝗋𝗈𝗃𝖾𝖼𝗍 <b>𝗆᤻</b>ⲟ𝗇 ／ 𝗁𝗈ɥ𝗈<i>𝗏𝖾𝗋𝗌𝖾</i> ⍺𝗋𝖾⍺ㅤㅤ﴿ㅤㅤ𝓼.<br>𔓖︥ㅤㅤׅㅤㅤ𝖼 ⸱ 𝗁 𝖿𝗋𝖾eℓ𝗒ㅤㅤ﴾ㅤㅤ 𝖾𝗇𝗀 ／ 𝖿i𝗅 ／ 𝗃𝗉ㅤ𝓈ㅤㅤㅤ𔐼<br>ㅤㅤ ⍺𝗇𝗒 ρ𝗋𝗈𝗇𝗈υ𝗇𝗌ㅤㅤׁㅤㅤ𝕲.ㅤㅤ5𝗍ⲉ𝖾𝗇
+<p align="center">ㅤㅤㅤㅤ𝗄ℓ𝖾ⲓnㅤㅤ࣪ㅤㅤ<b>k𝖾𝖎</b>ㅤㅤ♰ㅤㅤ𝟢1<br>ㅤㅤㅤ𝗐ℎ<underline>𝖾𝗋</underline>ᧉ  ?ㅤ﹕ㅤ 𝗉𝗋𝗈𝗃𝖾𝖼𝗍 <b>𝗆᤻</b>ⲟ𝗇 ／ 𝗁𝗈ɥ𝗈<i>𝗏𝖾𝗋𝗌𝖾</i> ⍺𝗋𝖾⍺ㅤㅤ﴿ㅤㅤ𝓼.<br>𔓖︥ㅤㅤׅㅤㅤ𝖼 ⸱ 𝗁 𝖿𝗋𝖾eℓ𝗒ㅤㅤ﴾ㅤㅤ 𝖾𝗇𝗀 ／ 𝖿i𝗅 ／ 𝗃𝗉ㅤ𝓈ㅤㅤㅤ𔐼<br>ㅤㅤ ⍺𝗇𝗒 ρ𝗋𝗈𝗇𝗈υ𝗇𝗌ㅤㅤׁㅤㅤ𝕲.ㅤㅤ5𝗍ⲉ𝖾𝗇 © dnc
 </p>
 </html>
 
