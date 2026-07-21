@@ -1,18 +1,18 @@
 
 <br>
 <html>
-  <p align="center">  <i>" 𝗂'𝗆 ⍺ 𝗌⍺𝗂𝗇𝗍 𝗅𝗂𝗏𝗂𝗇𝗀 𝗂𝗇 𝗌𝗂𝗇 . "</i> </p>
-<p align="center"> 
-  <img src="https://i.pinimg.com/736x/7b/4a/ca/7b4aca16afed7d21e8088d97ca968731.jpg" alt="jdio" width="300">
+ <p align="center">
+  <img src="https://readme-typing-svg.herokuapp.com?font=Cormorant+Garamond&size=16&duration=3500&pause=1000&color=EFA18F&center=true&vCenter=true&width=550&lines=𝓢𝗈+𝗄𝖾𝖾𝗉+𝖺+𝖼ⲟⲟ𝗅+𝗁𝖾⍺𝖽,+𝖺𝗇𝖽+𝗍𝗋𝖾⍺𝖽+𝖼⍺𝗋𝖾𝖿𝗎𝗅𝗅𝗒." />
 </p>
-<p align="center">⏔⏔⏔⏔ ꒰ 𖥔 ꒱ ⏔⏔⏔⏔<br>𓈒  ݂ ۫⠀ <img src="https://i.pinimg.com/originals/76/87/f4/7687f41886b35677b63ccfb579d8c516.gif" width="20" height="20" alt="custom_emoji"> . ʬ﹐K<u>E</u>I # ᶻz﹕</b>   ཀ† <br> 𝄞    5𝗍𝖾𝖾𝗇　ᛝ   fเl/<u>e</u>ng/<b>j</b>p　𓈒  🪽 <br>d<i>n</i>c skins　⟢ . w2i  -  c+h is <u>ok</u><i>!</i><br>
+<p align="center"> 
+  <img src="https://i.postimg.cc/nrsLxsdR/4629b62d-af1d-4928-921c-c73e3598cc1f-removebg-preview.png" alt="padparadscha" width="300">
+</p>
+<p align="center">ㅤㅤㅤㅤ𝗄ℓ𝖾ⲓnㅤㅤ࣪ㅤㅤ<b>k𝖾𝖎</b>ㅤㅤ♰ㅤㅤ𝟢1<br>ㅤㅤㅤ𝗐ℎ<underline>𝖾𝗋</underline>ᧉ  ?ㅤ﹕ㅤ 𝗉𝗋𝗈𝗃𝖾𝖼𝗍 <b>𝗆᤻</b>ⲟ𝗇 ／ 𝗁𝗈ɥ𝗈<i>𝗏𝖾𝗋𝗌𝖾</i> ⍺𝗋𝖾⍺ㅤㅤ﴿ㅤㅤ𝓼.<br>𔓖︥ㅤㅤׅㅤㅤ𝖼 ⸱ 𝗁 𝖿𝗋𝖾eℓ𝗒ㅤㅤ﴾ㅤㅤ 𝖾𝗇𝗀 ／ 𝖿i𝗅 ／ 𝗃𝗉ㅤ𝓈ㅤㅤㅤ𔐼<br>ㅤㅤ ⍺𝗇𝗒 ρ𝗋𝗈𝗇𝗈υ𝗇𝗌ㅤㅤׁㅤㅤ𝕲.ㅤㅤ5𝗍ⲉ𝖾𝗇
 </p>
 </html>
 
 <p align="center"> 
-  .   　˚　　   ✦ 　　   .　　. 　 ˚　.  　　 ✦⠀.   　˚　　   ✦　  .   　˚
+𝓜orᧉ﹖ㅤㅤ⎯⎯ㅤㅤ<a href="https://brunocciarati.carrd.co/">𝗁𝖾ⲋⲉ 𝗒ⲟυ 𝗀ⲟ．</a>ㅤㅤ﴾ㅤ𝒞 
 </p>
 
-<p align="center">
-  <a href="https://mortenax.atabook.org/">atabook</a>  <a href="https://brunocciarati.carrd.co/">carrd</a>
-</p>
+
