@@ -12,7 +12,7 @@
 </html>
 
 <p align="center"> 
-𝓜orᧉ﹖ㅤㅤ⎯⎯ㅤㅤ<a href="https://brunocciarati.carrd.co/">𝗁𝖾ⲋⲉ 𝗒ⲟυ 𝗀ⲟ．</a> 𝓞һ， ⍺𝗇𝖽 𝗁ᧉ𝗋ᧉ’𝗌 ⍺ <a href="https://listography.com/abumdance">𝗅ⲓ𝗌𝗍．</a>ㅤㅤ﴾ㅤ𝒞 
+𝓜orᧉ﹖ㅤㅤ⎯⎯ㅤㅤ<a href="https://brunocciarati.carrd.co/">𝗁𝖾ⲋⲉ 𝗒ⲟυ 𝗀ⲟ．</a> 𝓞һ， ⍺𝗇𝖽 𝗁ᧉ𝗋ᧉ’𝗌 ⍺ <a href="https://listography.com/abumdance">𝗅ⲓ𝗌𝗍</a>．𝓦⍺𝗇𝗍 ⍺ <a href="https://vojager.straw.page/">𝗌𝗍𝗋⍺𝗐𝖻ᧉ𝗋𝗋ⲩ﹖</a>ㅤㅤ﴾ㅤ𝒞 
 </p>
 
 
