@@ -81,6 +81,8 @@
 
 𝖼 ⸱ 𝗁 is always encouraged! seriously, i dont bite , , , come come
 
+this goes without saying, but please do <i>not</i> copy my skins. be original, but feel free to ask for inspo
+
 </td>
 
 </tr>
