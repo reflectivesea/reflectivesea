@@ -17,7 +17,7 @@
 <br>
 <html>
  <p align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?font=Cormorant+Garamond&size=16&duration=3500&pause=1000&color=EFA18F&center=true&vCenter=true&width=550&lines=𝓢𝗈+𝗄𝖾𝖾𝗉+𝖺+𝖼ⲟⲟ𝗅+𝗁𝖾⍺𝖽,+𝖺𝗇𝖽+𝗍𝗋𝖾⍺𝖽+𝖼⍺𝗋𝖾𝖿𝗎𝗅𝗅𝗒." />
+  <img src="https://readme-typing-svg.herokuapp.com?font=Cormorant+Garamond&size=20&duration=3500&pause=1200&color=EFA18F&center=true&vCenter=true&width=700&lines=oh,+thunder+only+happens+when+its+rainin';players+only+love+you+when+theyre+playin';say+women,+they+will+come+and+they+will+go;when+the+rain+washes+you+clean,+you'll+know.;you'll+know." />
 </p>
  <p align="center"> 
   <img src="https://i.postimg.cc/gJ0LMfVq/tumblr-7ca9a1837c43e5543b01725107130905-8f9f3cd6-2048.png width="150"">
