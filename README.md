@@ -31,7 +31,11 @@
 
 <td width="50%" align="center" style="border: none; padding: 0;">
 
-<b><h3>𝗄ℓ𝖾ⲓn</b>　࣪　<b>k𝖾𝖎</b>　♰　𝟢1</h3>
+<p align="center">
+  <img src="https://i.postimg.cc/28fKbWbG/7664c069-9994-4bc7-926f-4b23462f73be-removebg-preview.png" width="22">
+  <b>ℓ𝖾ⲓ𝗇</b>　࣪　
+  <span style="color:#EFA18F;"><b>k𝖾𝖎</b></span>　♰　𝟢1
+</p>
 
 <br>
 
